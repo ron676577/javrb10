@@ -27,4 +27,4 @@
 结语  
 通过选择优质、可靠的日本AV资源平台，用户可以享受更好的观影体验，不仅获得高清、无广告的影片播放，还能确保个人数据和隐私的安全。让我们一起享受最佳的观影时光。  
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/ron676577/javrb10 )</span>
